@@ -1,2 +1,0 @@
-# SorokaOlena.github.io
-Homework
